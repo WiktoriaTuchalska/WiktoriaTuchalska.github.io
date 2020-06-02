@@ -1,2 +1,0 @@
-# WiktoriaTuchalska.github.io
-Project
